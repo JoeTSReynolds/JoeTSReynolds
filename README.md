@@ -8,7 +8,7 @@ My interests are in:
 - Cyber security
 
 Reach me:
-LinkedIn: https://www.linkedin.com/in/joe-reynolds-921006318/
+LinkedIn: https://www.linkedin.com/in/jtsreynolds
 Email: joseph@reynolds.cc
 
 <!--
